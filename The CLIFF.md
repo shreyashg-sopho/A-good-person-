@@ -14,7 +14,7 @@ Well, being fully aware of everything in the present is quite difficult, and tha
 ---
 
 ## The Idea  
-Life, for most of us, revolves around five key pillars: **Career, Love, Identity, Family, and Friends.**  
+Life in adulthood, for most of us, revolves around five key pillars: **Career, Love, Identity, Family, and Friends.**  
 If you pause and give each of these a color—**Green, Yellow, or Red**—you’ll instantly get a picture of where you stand.  
 
 No numbers, no overthinking. Just a simple color check.  
