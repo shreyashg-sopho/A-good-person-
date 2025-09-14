@@ -15,7 +15,7 @@ Well, being fully aware of everything in the present is quite difficult, and tha
 
 ## The Idea  
 Life in adulthood, for most of us, revolves around five key pillars: **Career, Love, Identity, Family, and Friends.**  
-If you pause and give each of these a color—**Green, Yellow, or Red**—you’ll instantly get a picture of where you stand.  
+If you pause and give each of these a color **Green, Yellow, or Red** you’ll instantly get a picture of where you stand.  
 
 No numbers, no overthinking. Just a simple color check.  
 And honestly, doing it **once a month** is more than enough.
@@ -24,15 +24,16 @@ And honestly, doing it **once a month** is more than enough.
 
 ## Career
 - **Green** → You feel stable and content. Finances are fine, the environment is peaceful, colleagues are supportive, and overall, work feels fulfilling.  
-- **Yellow** → You feel the need to move on because something important is missing—be it growth, recognition, or satisfaction.  
+- **Yellow** → You feel the need to move on because something important is missing. Be it growth, recognition, or satisfaction.  
 - **Red** → You’re deeply worried about your career, whether due to instability, dissatisfaction, or stress.
 
 ---
 
 ## Love
-- **Green** → There’s warmth and connection.  
-- **Yellow** → There’s confusion, distance, or uncertainty.  
-- **Red** → It feels broken or missing.  
+- **Green** → You feel warmth and connection. This could be in the form of a healthy romantic relationship, deep companionship, or simply self-love where you feel at peace with yourself. There is trust, care, and emotional safety in this area of life.  
+- **Yellow** → Love is present, but not at its best. The bond may feel a little distant, routine, or uncertain at times. You may wish for more communication, effort, or depth, but the foundation is still intact. It’s less about things being “broken” and more about a gentle reminder that this area needs attention and nurturing.   
+- **Red** → It feels broken, absent, or deeply unfulfilling. You may feel neglected, unloved, or completely disconnected from a partner, from people you care about, or even from yourself. This could show up as loneliness, repeated conflict, or simply an empty space where love should be.  
+
 
 *(Note: Love is not necessarily romantic. Even if you’re not in a relationship right now, that does not automatically mean Red.)*
 
